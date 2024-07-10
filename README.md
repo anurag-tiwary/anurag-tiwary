@@ -1,0 +1,1 @@
+Hello there! I’m Anurag, a dedicated Data Analyst passionate about deriving insights from complex datasets. With a strong foundation in Business Administration and practical experience in fundraising and project management, I bring a unique perspective to data analysis.
